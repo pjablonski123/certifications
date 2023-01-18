@@ -1,1 +1,1 @@
-# certifications
+# Certification Resources and Tips
